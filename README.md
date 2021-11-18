@@ -1,0 +1,1 @@
+# frugalartists.github.io
